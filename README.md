@@ -1,1 +1,1 @@
-My first readme
+Life na jeje 
